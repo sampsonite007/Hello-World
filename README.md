@@ -1,2 +1,2 @@
 # Hello-World
-just another repository
+just another repository by michael sampson a lazy coder that wishes he could be better at what he does but just cant bring himself to work harder...
